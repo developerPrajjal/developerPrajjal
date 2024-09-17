@@ -11,12 +11,12 @@
 
 - 🤝 I’m looking for help with **Cybersecurity Projects**
 
-- 📝 I regularly write articles on [Cyber Threats and its impacts](Cyber Threats and its impacts)
+- 📝 I regularly write articles on **Cyber Threats and its impacts**
 
 - 📫 How to reach me **prajjal.tech@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1jfxn2hcv9uwRmNYM_F-mCfnpKP6_5IGf/view?usp=sharing](https://drive.google.com/file/d/1jfxn2hcv9uwRmNYM_F-mCfnpKP6_5IGf/view?usp=sharing)
-
+- 📄 Know about my experiences https://bit.ly/4gGzfwj
+  
 - ⚡ Fun fact **I still forget beginner level coding concepts while writing a code**
 
 <h3 align="left">Connect with me:</h3>
