@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **prajjal.tech@gmail.com**
 
-- 📄 Know about my experiences https://bit.ly/4gGzfwj
+- 📄 Know about my experiences (https://lnk.ink/8xou)
   
 - ⚡ Fun fact **I still forget beginner level coding concepts while writing a code**
 
