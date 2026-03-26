@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **prajjal.tech@gmail.com**
 
-- 📄 Know about my experiences https://lnk.ink/8xou
+- 📄 Know about my experiences [Download My Resume](https://drive.google.com/uc?export=view&id=1ABCxyz123456789)
   
 - ⚡ Fun fact **I still forget beginner level coding concepts while writing a code**
 
